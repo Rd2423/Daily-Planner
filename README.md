@@ -3,7 +3,7 @@
 
 
 
-## Helps you plan and organize day
+## Helps you plan and organize your day
 
 
 
